@@ -1,4 +1,4 @@
-### 
+
 ![MasterHead](https://media0.giphy.com/headers/GitHub/w8ZJLtJbmuph.gif)
 <h1 align="center">Hi 👋, I'm Sofiia Clere</h1>
 <h3 align="center">A passionate frontend developer</h3>
