@@ -11,7 +11,7 @@
 
 - 📫 How to reach me **sofiyatim@gmail.com**
 
-- ⚡ Fun fact **I have a dark sense of humor**
+- ⚡ Fun fact **I have a cat and her name's Mimi **
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
